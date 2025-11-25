@@ -1,0 +1,1 @@
+En este proyecto se investigará el pensamiento de la sociedad respecto a las paranoías que nuestra mente se inventa
